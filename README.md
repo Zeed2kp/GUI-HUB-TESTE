@@ -1,2 +1,0 @@
-# GUI-HUB-TESTE
-adasdasda
